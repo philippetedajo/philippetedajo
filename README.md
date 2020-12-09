@@ -1,4 +1,4 @@
-### Hello World. Welcome to my Valley 🏔️🗿🌄🌋
+### Welcome to my Valley 🏔️🗿🌄🌋
 <!--
 *philippetedajo/philippetedajo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
